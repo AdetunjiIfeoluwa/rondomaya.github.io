@@ -1,2 +1,2 @@
-# rondomaya.github.io
+# rondomayaya.github.io
 Adetunji Ifeoluwa's website
